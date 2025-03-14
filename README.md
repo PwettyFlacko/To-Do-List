@@ -1,49 +1,53 @@
 # To-Do-List
 
-- Check vitamin levels and ask doctor if you have leaky gut
+* Check vitamin levels and ask doctor if you have leaky gut
 
-- cologne (learn about fragrances)
+* Cologne (learn about fragrances)
 
-- student-aid/awards
+* Student-aid/awards
 
-- certificate work
+* Certificate work
 
-- learn chopstick
+* Learn chopstick
 
-- thrift 2 jeans, 2 pack of tshirt
+* **Thrift 2 jeans, 2 pack of tshirt**
 
-- Latisse brush & tennis balls & hyaluronic acid & vitamin c serum
-- Hop on finasteride and dutasteride ASAP
+* **Latisse brush & tennis balls & hyaluronic acid & vitamin c serum**
 
-- call school tomorrow about what the tax forms are about
-- go to salon
+* Hop on finasteride and dutasteride ASAP
 
-- make a goal document or career document whatever and put there that you need to master all the things you learned in the past year before the 2nd year fall semester starts
+* **Call school tomorrow about what the tax forms are about**
 
-- clarifying shampoo and silk / satin pillowcase (canadatire)- gloves for skincare (canadatire)
-- check out last semester and review them how they connect to this semester
-- 3nd day after oiling hair (still oily after washing) 3/2/2025
+* **Go to salon**
 
-- work in space industry
+* **Make a goal document or career document whatever and put there that you need to master all the things you learned in the past year before the 2nd year fall semester starts**
 
-- remove comments facebook / reddit / insta
+* **Clarifying shampoo and silk / satin pillowcase (canadatire)- gloves for skincare (canadatire)**
 
-- physical exfoliator
+* **Check out last semester and review them how they connect to this semester**
 
-- get both opinions of orthodontist and face surgeon (maxfac surgeon)
+* 3rd day after oiling hair (still oily after washing) 3/2/2025
 
-- save up for a charger of this laptop
+* Work in space industry
 
-- check your NSLSC email
+* Remove comments facebook / reddit / insta
 
-- collect all the best threads in your messenger account and put them in a seperate document and store those threads somewhere offline if you can
+* **Physical exfoliator**
 
-- vintage messenger bag / canvas bag / carhartt bag
+* Get both opinions of orthodontist and face surgeon (maxfac surgeon)
 
-- laptop stand
+* Save up for a charger of this laptop
 
-- thrift cowboy boots
+* **Check your NSLSC email**
 
-- make connections in the clubs at gbc
+* Collect all the best threads in your messenger account and put them in a seperate document and store those threads somewhere offline if you can
 
-- sort out this memo
+* **Vintage messenger bag / canvas bag / carhartt bag**
+
+* **Laptop stand**
+
+* **Thrift cowboy boots**
+
+* Make connections in the clubs at gbc
+
+* **Sort out this memo**
