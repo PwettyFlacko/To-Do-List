@@ -1,20 +1,22 @@
 # To-Do-List
 
-* Check vitamin levels and ask doctor if you have leaky gut
+## Urgent stuff
 
-* Cologne (learn about fragrances)
+* **Vintage messenger bag / canvas bag / carhartt bag**
 
-* Student-aid/awards
+* **Laptop stand**
 
-* Certificate work
+* **Check your NSLSC email**
 
-* Learn chopstick
+* **Physical exfoliator**
+
+* **Sort out this memo**
+
+* **Thrift cowboy boots**
 
 * **Thrift 2 jeans, 2 pack of tshirt**
 
 * **Latisse brush & tennis balls & hyaluronic acid & vitamin c serum**
-
-* Hop on finasteride and dutasteride ASAP
 
 * **Call school tomorrow about what the tax forms are about**
 
@@ -26,28 +28,30 @@
 
 * **Check out last semester and review them how they connect to this semester**
 
+## Not so urgent stuff
+
+* Hop on finasteride and dutasteride ASAP
+
 * 3rd day after oiling hair (still oily after washing) 3/2/2025
 
 * Work in space industry
 
 * Remove comments facebook / reddit / insta
 
-* **Physical exfoliator**
-
 * Get both opinions of orthodontist and face surgeon (maxfac surgeon)
 
 * Save up for a charger of this laptop
 
-* **Check your NSLSC email**
-
 * Collect all the best threads in your messenger account and put them in a seperate document and store those threads somewhere offline if you can
-
-* **Vintage messenger bag / canvas bag / carhartt bag**
-
-* **Laptop stand**
-
-* **Thrift cowboy boots**
 
 * Make connections in the clubs at gbc
 
-* **Sort out this memo**
+* Check vitamin levels and ask doctor if you have leaky gut
+
+* Cologne (learn about fragrances)
+
+* Student-aid/awards
+
+* Certificate work
+
+* Learn chopstick
